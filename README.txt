@@ -1,3 +1,4 @@
+During the battle, Rebel
 spies managed to steal secret
 plans to the Empire's
 ultimate weapon, the DEATH
