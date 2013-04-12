@@ -1,3 +1,4 @@
+plans to the Empire's
 ultimate weapon, the DEATH
 STAR, an armored space
 station with enough power
